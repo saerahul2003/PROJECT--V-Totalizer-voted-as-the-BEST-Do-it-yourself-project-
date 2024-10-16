@@ -1,2 +1,2 @@
-# PROJECT--V-Totalizer-voted-as-the-BEST-Do-it-yourself-project-
+# PROJECT--V-Totalizer-declared-as-the-BEST-DIY-project-At-VIT Chennai
 A ready reckoner for all the websites a college student needs to use
